@@ -1,5 +1,11 @@
-## Hi there 👋
+☆⋆.˚🎭''ძ᥆ᥒ'𝗍 kᥱᥱ⍴ 𝗍һᥱ ძᥱ᥎іᥣ ᥕᥲі𝗍іᥒg .''
 
+<img width="800" height="600" src="https://media1.tenor.com/m/vToVzyjw2moAAAAd/roblox-forsaken.gif" alt="a screenshot of a video game that says &quot; this round &#39;s killer is ... noli &quot;"/>   
+
+
+
+
+⠀⠀⠀⠀⠀⠀
 <!--
 **sighzxx/sighzxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
